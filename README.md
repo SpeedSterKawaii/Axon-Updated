@@ -11,4 +11,8 @@ My discord is SpeedSterKawaii#0001 (i have nitro lol).
 
 If you need help and stuff add me on that discord account.
 
+Please add credits to elkoax and speedsterkawaii before using.
+
+Check Retcheck.h if it's kicking, enjoy :D
+
 Also, Download Link is https://mega.nz/file/nqZxXCxR#uUrxQGv3tvSF1A8diFBvYZgyVuh37uDw7sMBx9_iLHA
